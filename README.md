@@ -1,0 +1,1 @@
+# Facebook-toplu-arkadas-silme
